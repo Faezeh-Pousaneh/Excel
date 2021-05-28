@@ -1,1 +1,1 @@
-This is a free trading journal made by me. 
+This is a trading journal made by me. Feel free to use it for your tradings
